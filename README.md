@@ -1,2 +1,2 @@
 # ED-2025-1
-aaaaa
+yo no tengo brazos pero no hace falta, solo un cabezaso con eso ya me basta
